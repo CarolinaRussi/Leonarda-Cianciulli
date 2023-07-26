@@ -1,4 +1,4 @@
-# Leonarda-Cinanciulli
+# Leonarda-Cianciulli
 Canal Colecionador de Ossos
 
 # Fontes e Referências da matéria:
